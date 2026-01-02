@@ -1,6 +1,6 @@
 # Privacy Policy for Nutrition App
 
-**Last Updated:** [Date]
+**Last Updated:** [1/2/2026]
 
 ## Introduction
 
