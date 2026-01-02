@@ -1,6 +1,6 @@
 # Terms of Service for Nutrition App
 
-**Last Updated:** [Date]
+**Last Updated:** [1/2/26]
 
 ## Acceptance of Terms
 
